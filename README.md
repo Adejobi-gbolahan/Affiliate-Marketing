@@ -1,2 +1,6 @@
-# fiverr.comaffiliatement0r
-This fiverr acccount is Omo MW fiverr and I put it to be active on this github account
+# Affiliate Marketing
+Elevate your affiliate marketing with ADV marketing strategies like
+SEO ( Search Engine Optimization)
+Google Ads
+Google merschant center
+Google Search Console and others
